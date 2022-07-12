@@ -3,7 +3,7 @@
 My Name is Panji Adhipramana
 my github contains the results of the tasks and projects I worked on
 
-Email: bit.ly/adhipramana
+Email: (bit.ly/adhipramana)
 
 
 ## ✨Sosial Media
